@@ -1,5 +1,5 @@
 # 🔥 VON66v 🔥
-### *The God of Godz*
+### *The GOD of GODz*
 
 <p align="center">
   <img src="https://img.shields.io/badge/Platform-Web-blue?style=for-the-badge&logo=google-chrome" />
